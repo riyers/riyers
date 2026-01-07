@@ -8,7 +8,7 @@
 </p>
 
 
-*ri* ★ **h***e*/**h***im*
+*nana* ★ **h***e*/**h***im*
 
 *too many interests to list and i love getting into new things*
 
